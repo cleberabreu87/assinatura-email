@@ -1,1 +1,1 @@
-# Icons taken from https://simpleicons.org/
+Icons taken from https://simpleicons.org/
